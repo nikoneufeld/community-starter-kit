@@ -35,4 +35,24 @@ firstPRMergeComment: >
 
 ### Example Messages
 
-CONFIGS PLACEHOLDER
+Hi i thinkascjsajjnasdkhods
+]
+ddfskladlkmsda
+
+
+asd
+sda
+das
+asd
+
+das
+asd
+sad
+
+a
+
+d
+
+DS
+AS
+D
