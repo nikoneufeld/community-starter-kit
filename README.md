@@ -1,10 +1,9 @@
 # welcome bot: A Probot App
 
-DESCRIPTION PLACEHOLDER
+cool app
 
 ## What it does
-
-FEATURES PLACEHOLDER
+ boring
 
 ## Getting started
 
